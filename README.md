@@ -1,5 +1,4 @@
- ![chipan](https://wankingwankitywanker.neocities.org/Themm.jpg)
- drop me a follow so i can check your strawpage out , heh i draw on people's strawpages for fun
+
 <!--
 **chipanyaoi/chipanyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
